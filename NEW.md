@@ -1,1 +1,1 @@
-Into the new worls - SNSD
+Into the new world - SNSD
